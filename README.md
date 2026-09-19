@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: Building the Death Star #5
 - 📫 How to reach me: The Force
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: The Jedi were wrong
+- ⚡ Fun fact: Some of the Sith had a point
 
 <!---
 Lauren-OShea/Lauren-OShea is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
