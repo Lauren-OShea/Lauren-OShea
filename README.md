@@ -1,3 +1,4 @@
+<img width="1500" height="500" alt="Untitled (1500 x 500 px)" src="https://github.com/user-attachments/assets/49497ffd-54cf-4c77-bf8a-153afe412e1f" />
 - 👋 Hi, I’m @Lauren-OShea
 - 👀 I’m interested in: Star Wars
 - 🌱 I’m currently learning: The art of the Dark side
